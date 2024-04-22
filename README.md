@@ -2,7 +2,7 @@
 - 👀 I’m interested in Embedded systems & frontend development.
 - 🌱 I’m currently learning Embedded system
 - 💞️ I’m looking to collaborate on Embedded systems
-- 📫 How to reach me ...
+- 📫 How to reach me ping on instagram @urs_rupak
 - 😄 Pronouns: HE
 - ⚡ Fun fact: Eat fivestar , Do nothing.
 
